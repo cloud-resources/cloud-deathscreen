@@ -11,7 +11,7 @@
 
 ## `📸`丨 Preview
 
-> [YouTube](https://www.youtube.com/watch?v=8bjrRzsAj08)
+> [YouTube](https://www.youtube.com/watch?v=nQqlXFAu6so)
 
 |                           |                                                                                           |
 | ------------------------- | ----------------------------------------------------------------------------------------- |
